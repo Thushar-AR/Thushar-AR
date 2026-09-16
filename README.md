@@ -1,4 +1,4 @@
-# 💫 About Me:
+#im thushar
 I'm A Software Engineer<br>
 
 
