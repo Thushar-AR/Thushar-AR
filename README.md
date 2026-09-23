@@ -1,4 +1,4 @@
-
+https://chatgpt.com/share/6ab25ba2-0220-83ee-8eef-809b3b438ce9
 https://chatgpt.com/share/6ab25619-4bd8-83e8-afab-b384ba20f0d7
 
 full developped   https://chatgpt.com/share/6ab25ba2-0220-83ee-8eef-809b3b438ce9
