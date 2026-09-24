@@ -1,7 +1,11 @@
 https://chatgpt.com/s/t_6ab3bf6205bc8191902d85859af27897
 
 
+Hello, I am a BCA fresher currently in India. I have a valid passport, but I do not have a Kuwait Article 18 transferable visa. I also do not know Arabic.
 
+Could you please confirm whether Arabic is mandatory for this position and whether the company provides a Kuwait work visa for candidates from India?
+
+Thank you.
 
 
 
