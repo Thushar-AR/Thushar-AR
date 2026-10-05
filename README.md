@@ -1,5 +1,3 @@
-#im thushar
-HEllo!!<br>
 I'm A Software Engineer<br>
 
 
